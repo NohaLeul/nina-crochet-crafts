@@ -1,2 +1,2 @@
 # nina-crochet-crafts
-A website of empowering young minds through provision of equipments.
+A website of style, fashion, design and modern that introduces minds to craftwear.
